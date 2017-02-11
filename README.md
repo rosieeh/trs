@@ -1,0 +1,2 @@
+# trs
+quiero morir
