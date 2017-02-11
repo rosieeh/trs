@@ -72,3 +72,4 @@
 [07:37:35 p.m.] terros: Una pena
 [07:38:02 p.m.] -: igual que tu existencia
 [07:38:07 p.m.] terros: Tambien xd
+a
